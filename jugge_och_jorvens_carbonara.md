@@ -1,4 +1,4 @@
-# Jugge och Jorvens carbonara (fasst väldigt långt ifrån)
+# Jugge och Jorvens carbonara (fast väldigt långt ifrån)
 
 ## Mättar
 ca 4-6 portioner
