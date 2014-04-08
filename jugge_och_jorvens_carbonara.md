@@ -1,7 +1,7 @@
 h1 Jugge och Jorvens carbonara (fasst väldigt långt ifrån)
 
 h2 Mättar
-4-6 portioner
+ca 4-6 portioner
 
 h2 Ingredienser
 
@@ -31,4 +31,4 @@ h2 Tillagning
 9. Strax innan man puttrat färdigt, släng i basilikabladet.
 10. Avsmaka och tillsätt salt och peppar.
 11. Koka valfri pasta under tiden pastasåsen lagas.
-12.Blanda till sist pastan med såsen. Serveras fördelaktigen med riven parmesanost på toppen.
+12. Blanda till sist pastan med såsen. Serveras fördelaktigen med riven parmesanost på toppen.
