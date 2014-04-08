@@ -11,7 +11,7 @@ ca 4-6 portioner
 * 1 röd lök
 * 3 vitlöksklyftor
 * 2 röda paprikor
-* 1 st röd chili (valfri)
+* 1(-4) st röd chili (valfri)
 * En kruka färska basilikablad
 * 1 burk 2dl creme fraiche, paprika och chili
 * 3-5 dl grädde
