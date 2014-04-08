@@ -1,9 +1,9 @@
-h1 Jugge och Jorvens carbonara (fasst väldigt långt ifrån)
+# Jugge och Jorvens carbonara (fasst väldigt långt ifrån)
 
-h2 Mättar
+## Mättar
 ca 4-6 portioner
 
-h2 Ingredienser
+## Ingredienser
 
 * 3 paket bacon
 * 3 st chorizo-korvar
@@ -18,7 +18,7 @@ h2 Ingredienser
 * Salt och peppar
 * Pasta, valfri
 
-h2 Tillagning
+## Tillagning
 
 1. Skär upp och gör i ordning bacon, korven, lökarna, paprikan och basilikan i små tärningar.
 2.  Släng i bacon i en stor kastrull. Fräs en stund.
