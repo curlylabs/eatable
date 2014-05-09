@@ -4,7 +4,7 @@ Okej, vi ska börja med att säga att antalet av resp. ingrediens är nästan he
 ## Ingredienser
 
 * 10 - 20+st tomater
-* Chilis
+* Chilis:
   - 3 - 4st Röd+Grön Chili
   - 2st Jalapeno
   - 1 - 2st Habanero
