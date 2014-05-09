@@ -1,5 +1,5 @@
 # Bobs 'Alsa (goes with HELLA-Everything!)
-Okej, vi ska börja med att säga att antalet av resp ingrediens är nåstan helt på känsla för varje gång jag gör den här.
+Okej, vi ska börja med att säga att antalet av resp. ingrediens är nästan helt på känsla för varje gång jag gör den här. Lita på ditt omdöme. Du lär dig hur den ska bli efter ett par voltor.
 
 ## Ingredienser
 
