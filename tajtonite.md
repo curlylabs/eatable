@@ -12,13 +12,13 @@ ca 4 portioner
 * 3-5st vitlöksklyftor
 * 1st röd paprika
 * 3st salladslökar
-* 1-2 msk Riven ingefära
+* 1-2 msk riven ingefära
 * 2(-4) st röd chili
-* 10st Coctailtomater
+* 10st coctailtomater
 * 1 dl japansk soya
 * 0-2 dl vatten (att spä ut med vid behov)
 * Salt och peppar
-* Ris, nudlar, eller ingenting
+* Ris, nudlar, eller ingenting.
 
 ## Tillagning
 0. Dela den gula och den röda löken på mitten. Skär sedan tunna skivor av lökarna. Skala vitlöken och skär i tunna skivor. Kärna ut chilin och skär den i sneda skivor. Dela på coctailtomaterna i halvor. Skär salladslöken i tunna skivor. Riv ingefäran med ett rivjärn.
