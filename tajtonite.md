@@ -6,7 +6,7 @@ ca 4 portioner
 
 ## Ingredienser
 
-* 500g Biff
+* 500g+ Biff
 * 1st gul lök
 * 1st röd lök
 * 3-5st vitlöksklyftor
