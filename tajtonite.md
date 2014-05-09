@@ -10,7 +10,7 @@ ca 4 portioner
 * 1st gul lök
 * 1st röd lök
 * 3-5st vitlöksklyftor
-* 1st röda paprikor
+* 1st röd paprika
 * 3st salladslökar
 * 1-2 msk Riven ingefära
 * 2(-4) st röd chili
