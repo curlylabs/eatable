@@ -1,5 +1,5 @@
 # TajTonite || Bobs Swedish Meet Thai Bowl
-Det är här ett recept som är hämtat från icakuriren men som jag naturligtvis har moddat lite.
+Det är här ett recept som är hämtat från icakuriren men som jag naturligtvis har moddat.
 
 ## Mättar
 ca 4 portioner
