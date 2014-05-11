@@ -12,11 +12,11 @@ ca 4 portioner / 4 hungry soulz
 * 3-5st vitlöksklyftor / 3-5 cloves of garlic
 * 1st röd paprika / 1 red bell pepper
 * 3st salladslökar / 3 Scallion
-* 1-2 msk riven ingefära / 1-2 spoon grated ginger
-* 2(-4) st röd chili / 2-4 red chili (strength of choice)
+* 1-2 msk riven ingefära / 2+ tbl spoon of grated ginger
+* 2(-4) st röd chili / 2-4+ red chili (strength of choice)
 * 10st coctailtomater / 10 small coctail tomatoes
 * 1 dl japansk soya / 1 cup Japanese Soya
-* 0-2 dl vatten (att spä ut med vid behov) / 0 -> about a cup of plain water (if needed)
+* 0-2 dl vatten (att spä ut med vid behov) / 0->about a cup of plain water (if needed)
 * Salt och peppar / Salt 'n' Pepa
 * Serveras med ris, nudlar, eller ingenting. / Serve with rice, nudles or just nothing.
 
