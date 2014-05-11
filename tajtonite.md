@@ -11,9 +11,9 @@ ca 4 portioner / 4 hungry soulz
 * 1st röd lök / 1 red onion
 * 3-5st vitlöksklyftor / 3-5 cloves of garlic
 * 1st röd paprika / 1 red bell pepper
-* 3st salladslökar / 3 Scallion
+* 3st salladslökar / 3 Scallions
 * 1-2 msk riven ingefära / 2+ tbl spoon of grated ginger
-* 2(-4) st röd chili / 2-4+ red chili (strength of choice)
+* 2(-4) st röd chili / 2-4+ red chilis (strength of choice)
 * 10st coctailtomater / 10 small coctail tomatoes
 * 1 dl japansk soya / 1 cup Japanese Soya
 * 0-2 dl vatten (att spä ut med vid behov) / 0->about a cup of plain water (if needed)
