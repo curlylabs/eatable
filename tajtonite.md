@@ -1,5 +1,4 @@
 # TajTonite || Bobs Swedish Meet Thai Bowl
-*(in swedish right now - will translate it a.s.a.p)*  
 A swedish thai bowl with beef and vegetables. Yum!
 
 ## Mättar / Feedz
